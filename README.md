@@ -10,3 +10,4 @@
 
 > If you want a rainbow, you have to deal with the rain.
 
+> I'm begging you, Prince Zuko! It's time for you to look inward and begin asking yourself the big questions: Who are you? And what do you want?
