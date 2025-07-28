@@ -1,3 +1,5 @@
+> Years may wrinkle skin, but to give up enthusiasm wrinkles the soul.
+
 > If you need a witness, be your own
 
 
