@@ -1,3 +1,5 @@
+> “Hope” is the thing with feathers. That perches in the soul. And sings the tune without the words. And never stops - at all.
+
 > Years may wrinkle skin, but to give up enthusiasm wrinkles the soul.
 
 > If you need a witness, be your own
