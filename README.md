@@ -1,3 +1,5 @@
+> You are alone against a coordinated system that is exceedingly effective at packaging problems you should never have with solutions you should never need. A symbiotic loop.
+
 > Startups are built on small wins.
 
 > So long, and thanks for all the fish.
