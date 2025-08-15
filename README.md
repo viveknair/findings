@@ -1,3 +1,5 @@
+> As I am about to enter the ranks of those who disobey / ever more brightly shines / the moon of the summer night.
+
 > You are alone against a coordinated system that is exceedingly effective at packaging problems you should never have with solutions you should never need. A symbiotic loop.
 
 > Startups are built on small wins.
