@@ -2,6 +2,8 @@
 
 > You are alone against a coordinated system that is exceedingly effective at packaging problems you should never have with solutions you should never need. A symbiotic loop.
 
+> Almost all startups are fragile initially. And that's one of the biggest things inexperienced founders and investors (and reporters and know-it-alls on forums) get wrong about them. They unconsciously judge larval startups by the standards of established ones. They're like someone looking at a newborn baby and concluding "there's no way this tiny creature could ever accomplish anything."
+
 > Startups are built on small wins.
 
 > So long, and thanks for all the fish.
