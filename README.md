@@ -1,5 +1,7 @@
 > As I am about to enter the ranks of those who disobey / ever more brightly shines / the moon of the summer night.
 
+> What does good system design look like? I’ve written before that it looks underwhelming. In practice, it looks like nothing going wrong for a long time. You can tell that you’re in the presence of good design if you have thoughts like “huh, this ended up being easier than I expected”, or “I never have to think about this part of the system, it’s fine”.
+
 > You are alone against a coordinated system that is exceedingly effective at packaging problems you should never have with solutions you should never need. A symbiotic loop.
 
 > Almost all startups are fragile initially. And that's one of the biggest things inexperienced founders and investors (and reporters and know-it-alls on forums) get wrong about them. They unconsciously judge larval startups by the standards of established ones. They're like someone looking at a newborn baby and concluding "there's no way this tiny creature could ever accomplish anything."
