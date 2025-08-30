@@ -1,3 +1,5 @@
+> When you feel it, you know. The feature makes you smile when you use it. It fits right in, like it was always meant to be there. You want to use it again. You want to tell people about it.
+
 > “Hope” is the thing with feathers. That perches in the soul. And sings the tune without the words. And never stops - at all.
 
 > It is so good for the soul to be in NYC. it is good for you to be forcibly ejected from the story you are telling yourself about your own life.
