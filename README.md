@@ -1,3 +1,5 @@
+> Turn every page. Never assume anything. Turn every goddamn page.
+
 > When you feel it, you know. The feature makes you smile when you use it. It fits right in, like it was always meant to be there. You want to use it again. You want to tell people about it.
 
 > “Hope” is the thing with feathers. That perches in the soul. And sings the tune without the words. And never stops - at all.
