@@ -1,3 +1,5 @@
+> Better to be the oldest person in the gym than youngest in the nursing home.
+
 > Turn every page. Never assume anything. Turn every goddamn page.
 
 > When you feel it, you know. The feature makes you smile when you use it. It fits right in, like it was always meant to be there. You want to use it again. You want to tell people about it.
