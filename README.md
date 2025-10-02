@@ -1,3 +1,5 @@
+> Budapest. Sometime around 1978. It's past 1am and all the lights in a high-rise apartment are out, except for one. A Hungarian girl — not yet 10 years old — sits on the cold bathroom floor balancing a chessboard on her knees. Her father opens the door and finds her there, crying, "Sofia! Leave the pieces alone!". The girl looks up at him. "Daddy," she says almost desperately, "they won't leave me alone!"
+
 > Better to be the oldest person in the gym than youngest in the nursing home.
 
 > Turn every page. Never assume anything. Turn every goddamn page.
