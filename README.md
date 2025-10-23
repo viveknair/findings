@@ -19,7 +19,7 @@
 > Robin: I'm no VIP. I'm not even an IP. I'm just a lowly little P sitting out here in the gutter.
 > Lily: I'll take a P in the gutter over Julia Roberts any day.
 
-> > New York, New York - so bad they had to name it twice.
+> New York, New York - so bad they had to name it twice.
 
 > As I am about to enter the ranks of those who disobey / ever more brightly shines / the moon of the summer night.
 
